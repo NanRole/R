@@ -6,3 +6,5 @@ Youtube Playlist: https://www.youtube.com/playlist?list=PLUqWPmpsqNOFqN5XJu8lfgC
 
 109-2 中級R 張烜翰老師
 Youtube Playlist: https://www.youtube.com/playlist?list=PLUqWPmpsqNOGn6722Qngz8T1VrRzRqMTN 
+
+Note: https://hackmd.io/@Z1m8PSYMTwuAjFZXID1mJw/BJAphiqU_
